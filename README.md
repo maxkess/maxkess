@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋🏻
 
 - 🔭 I’m currently working on my PhD at Stanford in Mechanical Engineering
 - 💨 I focus on mitigating the climate and health impacts of methane emissions
